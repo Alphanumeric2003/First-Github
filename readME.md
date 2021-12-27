@@ -1,3 +1,3 @@
-balb blab lbajvidoawev[
+balb blab lbajvidoawev
 
 vjidsrovpjrdiogvpjrgi
